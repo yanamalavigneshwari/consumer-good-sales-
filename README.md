@@ -1,1 +1,0 @@
-# consumer-good-sales-
